@@ -1053,4 +1053,3 @@ You have:
 **Time Limit:** 10-15 minutes (confirm with lecturer)
 **Q&A:** 5-10 minutes following presentation
 
-**Good luck with your presentation, Thoon Wai Si!** 🎓📊
